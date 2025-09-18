@@ -4,6 +4,6 @@ My style ain't anything extraordinary, but it's comfortable.
  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s6llcf1611ahcow6dwx8mooic&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=f3aa44&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
- ☆ I have no triggers! But if something turns out to be bothersome I will make sure to let you know! Communication is super important to me.
+ ☆ I have no triggers! But if something turns out to be bothersome I will make sure to let you know! Communication is super important to me. ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎
  ☆ I love listening to people yap about their passions or original characters! It's incredibly inspiring, and heartwarming to know that people are willing to share such things with me. 
  ☆ I am Polish. So my wifi is dookie >:C
