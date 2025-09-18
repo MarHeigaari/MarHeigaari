@@ -7,3 +7,13 @@ My style ain't anything extraordinary, but it's comfortable.
  ☆ I have no triggers! But if something turns out to be bothersome I will make sure to let you know! Communication is super important to me.  
  ☆ I love listening to people yap about their passions or original characters! It's incredibly inspiring, and heartwarming to know that people are willing to share such things with me.   
  ☆ I am Polish. So my wifi is dookie >:C  
+‎ ‎ ‎   
+‎ ‎ ‎   
+‎ ‎ ‎   
+ ‎ ‎ ‎    
+ ‎ ‎ ‎    
+ ‎ ‎ ‎   
+ ‎ ‎ ‎   
+ ‎ ‎ ‎   
+‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎  ***Art Credit goes to my bestie @dear.pluralyz on Discord ! ! !***
+<img width="1452" height="1376" alt="VeeGlisten" src="https://github.com/user-attachments/assets/209ece27-6282-4c70-aa9b-57a8ed352be5" />
