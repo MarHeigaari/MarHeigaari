@@ -17,3 +17,12 @@ My style ain't anything extraordinary, but it's comfortable.
  ‎ ‎ ‎   
 ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎  ***Art Credit goes to my bestie @dear.pluralyz on Discord ! ! !***
 <img width="1452" height="1376" alt="VeeGlisten" src="https://github.com/user-attachments/assets/209ece27-6282-4c70-aa9b-57a8ed352be5" />
+ ‎‎  ‎   
+ ‎‎  ‎   
+ ‎‎  ‎   
+  ‎‎  ‎   
+   ‎‎  ‎   
+    ‎‎  ‎   
+     ‎‎  ‎   
+      ‎‎  ‎   
+ ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎   ‎‎  ‎  ‎‎  ‎  ‎‎  ‎ ‎ <img width="800" height="600" alt="FKURXX" src="https://github.com/user-attachments/assets/857ac040-2728-448a-b7c3-90b376feaf0b" />
