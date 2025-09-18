@@ -25,4 +25,4 @@ My style ain't anything extraordinary, but it's comfortable.
     ‎‎  ‎   
      ‎‎  ‎   
       ‎‎  ‎   
- ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎   ‎‎  ‎  ‎‎  ‎  ‎‎  ‎ ‎ <img width="400" height="200" alt="FKURXX" src="https://github.com/user-attachments/assets/857ac040-2728-448a-b7c3-90b376feaf0b" />
+ ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎   ‎‎  ‎  ‎‎  ‎   ‎‎  ‎  ‎‎  ‎‎  ‎  ‎‎  ‎‎  ‎  ‎‎  ‎‎  ‎  ‎‎ ‎‎  ‎ ‎ <img width="400" height="500" alt="FKURXX" src="https://github.com/user-attachments/assets/857ac040-2728-448a-b7c3-90b376feaf0b" />
